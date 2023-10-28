@@ -1,0 +1,3 @@
+- 👋 I’m EducationalStuff
+- 🛠️ I make things like game sites and other stuff for school
+- 💵 Go check out my game site: https://sites.google.com/students.wcpss.net/bigcashgames/home
